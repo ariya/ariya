@@ -11,7 +11,7 @@ English:
 
 Bahasa Indonesia:
 * Medium: [@ariya114](https://medium.com/@ariya114)
-* Instagram: [@ariya114](https://instagram.com/@ariya114)
+* Instagram: [@ariya114](https://instagram.com/ariya114)
 * Podcast: [MARPEL](https://www.youtube.com/playlist?list=PL7Yn_s758zZNgLxmQfwCB86bBzpl0Kb4A)
 
 How to reach me: [📫](mailto:ariya.hidayat@gmail.com)
